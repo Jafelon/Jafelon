@@ -13,3 +13,6 @@
 
 Twitter - https://twitter.com/Jaeflon
 Gmail - rpundokm@gmail.com
+
+
+"The wielder is the one that can strengthen the blade itself and not the blade" - Kai(Alpha) 
